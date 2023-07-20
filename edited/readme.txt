@@ -1,0 +1,1 @@
+Pasta que contém resultado dos vídeos editados pelo script

@@ -1,0 +1,1 @@
+Pasta que contém vídeos satisfatórios, para ficar como clip2
