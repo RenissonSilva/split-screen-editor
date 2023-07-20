@@ -1,1 +1,0 @@
-Pasta deve conter todos os vídeos de conteúdo
